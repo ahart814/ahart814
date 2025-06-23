@@ -1,7 +1,10 @@
 #### Hi there 👋
 
-UX designer because I love people; UI developer because I hate fun.
+I'm Alex (she/her). I'm a UX/UI designer & developer based in Washington, D.C. 
 
-Otherwise, doing rugby things @ [dcrevolution.com](https://www.dcrevolution.com)
+You can [contact me here](https://www.linkedin.com/in/alex-hart-48990a23/).
 
-She/her pronouns, please & thank you! 
+Side projects include: 
+* [DC Revolution Rugby Club](https://www.dcrevolution.com/)
+* [Fishbelly Design - Handmade Gifts](https://www.fishbellydesign.com)
+
